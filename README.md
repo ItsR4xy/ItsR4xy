@@ -4,7 +4,7 @@
 - 🔭 Im Looking For Passion
 - 😄 Pronouns: He / Him
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2022 Goals: Contribute more "anything" also saving money for new vga for my pc
+- 🥅 2022 Goals: Contribute more "anything"
 - ⚡ Fun fact: i like watching movie,listening to music and playing games
 - 📫 Reach me by Discord:R4xy#6674
 
