@@ -1,16 +1,21 @@
-### Hi there 👋
+### 👋Hi there,Im Daffa - aka [R4xy] 
 
-<!--
-**R4xys/R4xys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## I'm a Human and still a Students
+- 🔭 Im Looking For Passion
+- 😄 Pronouns: He / Him
+- 🌱 I’m currently learning everything 🤣
+- 🥅 2022 Goals: Contribute more "anything" also saving money for new vga for my pc
+- ⚡ Fun fact: i like watching movie,listening to music and playing games
+- 📫 Reach me by Discord:R4xy#6674
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Heres my Social Media:
+<p>Instagram:-
+  <p>Twitter:-
+    <p>Twitch:https://twitch.tv/cyya_
+<p>Discord: R4xy#6674</p>
+<p>Spotify: https://open.spotify.com/user/314sulkycagzv5yvicsiglq6qt3a?si=4385c874a1f340aa</p>
+
+<br />
+<br />
+---
