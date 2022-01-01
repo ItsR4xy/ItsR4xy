@@ -12,9 +12,9 @@
 ### Heres my Social Media:
 <p>Instagram:-
   <p>Twitter:-
-    <p>Twitch:https://twitch.tv/cyya_
+<p>Twitch:<a href="https://twitch.tv/cyya_">Cyya_ twitch<a/></p>
 <p>Discord: R4xy#6674</p>
-<p>Spotify: https://open.spotify.com/user/314sulkycagzv5yvicsiglq6qt3a?si=4385c874a1f340aa</p>
+<p>Spotify:<a href="https://open.spotify.com/user/314sulkycagzv5yvicsiglq6qt3a?si=4385c874a1f340aa">R4 spotify profile</a></p>
 
 <br />
 <br />
