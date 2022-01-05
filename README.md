@@ -2,7 +2,7 @@
 
 ## I'm a Human and still a Students
 - 🔭 Im Looking For Passion
-- 😄 Pronouns: He cuz i never be him
+- 😄 Pronouns: He
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2022 Goals: Contribute more "anything"
 - ⚡ Fun fact: i like watching movie,listening to music and playing games
