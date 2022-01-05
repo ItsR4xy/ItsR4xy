@@ -1,6 +1,6 @@
 ### 👋Hi there,Im Daffa - aka [R4xy] 
 
-## I'm a Human and still a Students
+## I'm a Human
 - 🔭 Im Looking For Passion
 - 😄 Pronouns: He
 - 🌱 I’m currently learning everything 🤣
