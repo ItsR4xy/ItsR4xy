@@ -5,7 +5,7 @@
 - 😄 Pronouns: He
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2022 Goals: Contribute more "anything"
-- ⚡ Fun fact: i like watching movie,listening to music and playing games
+- ⚡ Fun fact: i like watching movie,listening to music,code and playing sum games
 - 📫 Reach me by Discord:R4xy#6674
 
 
