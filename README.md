@@ -1,11 +1,11 @@
 ### 👋Hi there,Im Daffa aka [R4xy] 
 
 ## I'm a Human
-- 🔭 Im Looking For Passion
+- 🔭 Idunno what Im Looking For...
 - 😄 Pronouns: He
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2022 Goals: Contribute more "anything"
-- ⚡ Fun fact: i like Code, Movies & Music
+- ⚡ Fun fact: i like Code, Movies & Music.
 - 📫 Reach me by Discord:R4xy#6674
 
 
